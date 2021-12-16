@@ -1,1 +1,0 @@
-# daiga-t.github.io
